@@ -17,6 +17,6 @@ I have two tiny dogs:
 One goal that I have this year is to have my PADI certification. It have been a while since I have the package to study, but I have not made the time to study the material.
 
 Picture with friends:   
-![my zumba crew](https://www.facebook.com/photo.php?fbid=10209872413793053&set=t.100001525175865&type=3&theater)
+![My Photo](https://scontent.fsan1-2.fna.fbcdn.net/v/t1.0-9/13502047_10209872413793053_7124587499901159501_n.jpg?oh=72c72e9ef16600a28913f992f5c82418&oe=5906E019)
 
 If you want to see more pictures of me, check my [FaceBook account](https://www.facebook.com/keilajosefinagarcia)
